@@ -1,6 +1,6 @@
 ### Hi there, I'm  Kuntal Ghosh 👋
 
-- 🔭 I’m currently working at Linkedsage Limited!
+- 🔭 I’m currently working at BJIT Limited!
 - 🌱 I’m currently learning everything 🤣
 - ⚡ Fun fact: I love to Exlopre the world 
 
